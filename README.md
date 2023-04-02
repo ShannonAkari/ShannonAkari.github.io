@@ -1,1 +1,0 @@
-# ShannonAkari.github.io
